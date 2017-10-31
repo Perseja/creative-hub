@@ -1,2 +1,2 @@
 # creative-hub
-Original creative hot spot.. let's mess around here!
+Original creative hot spot.
